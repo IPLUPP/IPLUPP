@@ -1,4 +1,4 @@
-hello thereeee im IP.
+hello thereeee
 
 hopefully there will be so cool projects on here at somepoint
 
